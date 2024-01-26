@@ -37,7 +37,7 @@ Our IoT Chic Home is the perfect blend of brains and beauty. Lights that dance t
 
 ### Description
 
-![GIF](https://giphy.com/clips/originals-hacker-desi-hackette-lu01tsQqf1mJuHrFVq)
+![GIF](https://media.giphy.com/media/YPhs6YoPXEJgFxERoG/giphy.gif)
 
 
 Step into the Queen's Palace of E-commerce. It's not just a website; it's a shopping spree waiting to happen. From secure payments to the runway-worthy UI, it's e-commerce fit for a queen.
